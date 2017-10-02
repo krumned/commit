@@ -1,3 +1,7 @@
 # commit
-ok
-samo Levski.
+
+
+
+
+
+smart za 4orbata
